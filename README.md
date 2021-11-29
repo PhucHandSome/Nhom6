@@ -1,2 +1,2 @@
-# Nh-m-6
+# Nhom 6
 Kho lưu trữ nhóm 6
